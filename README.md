@@ -1,2 +1,2 @@
-# milkproductnawada.github.io
+# manishdairyproduct.github.io
 Contact for Milk product
